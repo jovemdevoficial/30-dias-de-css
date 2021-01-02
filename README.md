@@ -24,6 +24,8 @@ A definir | Envio dos desafios anteriores
 
 ## Regras
 
+## Inscrições
+
 ## Participantes Confirmados
 
 ## Premiação
